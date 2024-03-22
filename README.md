@@ -1,1 +1,1 @@
-# Click: [wanggangwei.github.io](https://github.com/wanggangwei66/wanggangwei.github.io/)
+# Click: [wanggangwei.github.io](https://wanggangwei.github.io/)
